@@ -1,0 +1,1 @@
+Experienced Computer Engineer, Frontend and Backend Developer with a demonstrated history of working in development various commercial projects. Skilled in Full-Stack Development, Android Development, React.js,Node.js, Express.js, Adobe XD and UI/UX design.
